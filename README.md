@@ -12,4 +12,4 @@ I dunno, some good music I guess
 - [Shy FX - Old Skool Jungle ](https://www.youtube.com/watch?v=5_sJWCphX9c)
 - [Deacon - Patterns of Chaos (Side A)](https://www.youtube.com/watch?v=nT0NKOmTxGw)
 - [Deacon - Patterns of Chaos (Side B)](https://www.youtube.com/watch?v=1knxuYOalwM)
-- [Rob Playford – Blueprint](Rob Playford – Blueprint [1997 studio mix])
+- [Rob Playford – Blueprint](https://www.youtube.com/watch?v=DDrb_Rw6kCM)
