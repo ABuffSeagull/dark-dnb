@@ -23,6 +23,8 @@
 - [**CD 1** Decoder 21st century Drum N Bass Mix](https://www.youtube.com/watch?v=ZDFQ5VpssKU)
 - [**CD 2** Decoder 21st century Drum N Bass Mix](https://www.youtube.com/watch?v=AT-LqkdJiYs)
 - [**CD 3** Decoder 21st century Drum N Bass Mix](https://www.youtube.com/watch?v=5wkKVoP0-fc&t=679s)
+- [Black Sun Empire - Variations On Black. Full LP Mix by LastStand](https://www.youtube.com/watch?v=5U4Z_vy6cHg)
+- [Dr Woe - dark Dnb vinyl-set in Yoko´s "Grid Epsilon show" on Dnbradio May ´16](https://www.youtube.com/watch?v=KKeUugEolLo)
 
 ### Tracks
 - [Hyper On Experience - Lord Of Null Lines (Foul Play Remix)](https://www.youtube.com/watch?v=MC4yCPbdbT4)
