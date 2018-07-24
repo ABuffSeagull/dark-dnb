@@ -1,5 +1,8 @@
-# dark-dnb
-I dunno, some good music I guess
+## TODO
+- [ ] Categorize
+- [ ] Write a script to gather better song\mix metadata and write to JSON
+
+## Drum & Bass
 
 - [Homemade Weapons - Weaponry Session #10 Introducing TORANA](https://soundcloud.com/homemadeweapons/homemade-weapons-weaponry-session-10-introducing-torana)
 - [Artist Mix #004 - Akinsa](https://soundcloud.com/roninordinance/artist-mix-004-akinsa)
@@ -13,4 +16,5 @@ I dunno, some good music I guess
 - [Deacon - Patterns of Chaos (Side B)](https://www.youtube.com/watch?v=1knxuYOalwM)
 - [Rob Playford – Blueprint](https://www.youtube.com/watch?v=DDrb_Rw6kCM)
 - [Terminus | Techstep + Drum and Bass Mix](https://youtu.be/P3oA9Tuykr4)
-
+- [Heretic - Live in Tokyo](https://www.youtube.com/watch?v=L9o0l4G4Iuw)
+- [Jungle / Drum & Bass Old Skool Mix (Mickey B)](https://www.youtube.com/watch?v=PCXuCLbFGo4)
