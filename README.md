@@ -25,6 +25,13 @@
 - [**CD 3** Decoder 21st century Drum N Bass Mix](https://www.youtube.com/watch?v=5wkKVoP0-fc&t=679s)
 - [Black Sun Empire - Variations On Black. Full LP Mix by LastStand](https://www.youtube.com/watch?v=5U4Z_vy6cHg)
 - [Dr Woe - dark Dnb vinyl-set in Yoko´s "Grid Epsilon show" on Dnbradio May ´16](https://www.youtube.com/watch?v=KKeUugEolLo)
+- [Black Sun Empire Podcast 28 HQ](https://www.youtube.com/watch?v=PSVbOxzEt3o)
+- [L 33 - Eatbrain Podcast [Ep. 035]](https://www.youtube.com/watch?v=BkIjPQExD-o)
+- [Drum And Bass - The Neuro Nightmare](https://www.youtube.com/watch?v=xydnnE18Ptw)
+- [Agressor Bunx - Bad Taste Podcast [Ep. 016]](https://www.youtube.com/watch?v=MFwLpO9ZVmY)
+- [Pixie - Beats For Love 2017](https://www.youtube.com/watch?v=E_PYS_ZcYQk)
+- [Pythius - Neurofunk will Never Die ](https://www.youtube.com/watch?v=GgxN3691u6g)
+- [Dark, Minimal Drum and Bass Mix 2014](https://www.youtube.com/watch?v=HgTevHaCoek)
 
 ### Tracks
 - [Hyper On Experience - Lord Of Null Lines (Foul Play Remix)](https://www.youtube.com/watch?v=MC4yCPbdbT4)
