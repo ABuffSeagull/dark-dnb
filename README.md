@@ -33,6 +33,7 @@
 - [Pythius - Neurofunk will Never Die ](https://www.youtube.com/watch?v=GgxN3691u6g)
 - [Dark, Minimal Drum and Bass Mix 2014](https://www.youtube.com/watch?v=HgTevHaCoek)
 - [Jade - Eatbrain Night](https://www.youtube.com/watch?v=EwalO1Qe5gg)
+- [Weaponry - Weaponry Session #11 The Untouchables & Red Army](https://soundcloud.com/homemadeweaponry/weaponry-11-the-untouchables-red-army-august-2018)
 
 ### Tracks
 - [Hyper On Experience - Lord Of Null Lines (Foul Play Remix)](https://www.youtube.com/watch?v=MC4yCPbdbT4)
